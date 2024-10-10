@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @m4tvtr
 - 👀 I’m interested in cybersecurity world
 - 🌱 I’m currently learning computer science
-- 📫 How to reach me: telegram - @m4tvtr
 - ⚡ Fun fact: i love coffee
